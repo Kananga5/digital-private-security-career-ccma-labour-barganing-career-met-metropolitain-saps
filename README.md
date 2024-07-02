@@ -3252,5 +3252,155 @@ On Mon, Feb 19, 2024 at 3:51 PM President Hotline(DPME) <president@presidency.
                     The content of this email is confidential and intended for the recipient specified in the message only. It is strictly forbidden to share any part of this message with any third party, without the written consent of the sender. If you received this message by mistake, please reply to this message and follow with its deletion, so that we can ensure such a mistake does not occur in the future. National Bargaining Council For Private Security Sector https://nbcpss.org.za
 
     http://www.thepresidency.gov.za/content/legal-disclaimers
-    http://www.thepresidency.gov.za/content/legal-disclaimers
+    http://www.thepresidency.gov.za/content/legal-disclaimersRe: Complaint pension fund
+Inbox
+TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com>
+	
+Sun, Jun 4, 2023, 3:02 PM
+	
+to enquiries, Steve, NBCPSS, NBCPSS, info, labourcourt, Riyaana, TSHINGOMBEKB, tshitaditshingombe, PSiRA, sassetacommunications, SASSETA, me, tshingombe
+Complaint 
+
+On Sun, 04 Jun 2023, 08:16 TSHINGOMBEKB TSHITADI, <tshingombekb@gmail.com> wrote:
+
+    Nogada guarding services vs tshingombe Tshitadi 
+    P.o.box @0396, /
+    Falls 1522,fourteenth avenue,northemeadsauare office block,benoni, 1501, Ccma benonie jhb , Witbank 
+    Telephone 2711849/19/15/33,
+    Facsimiles+271184984730.
+    V.a.t n: 4150224121.
+    Cc  No,2005/124132/23.
+    P.sira no:135842
+    Info@nogada.co.za.
+    Nogada sa review employee
+    Edenvale 
+    ______________________________________
+    Job title : customer trolley assistant parking  career 
+       , location. Witbank..Ccma labour court jhb...psira  pssf 
+    -Work life balance: R000
+    -pay benefits:R000
+    -job security advancement.
+    -management culture 
+    Good condition work .day night shift .
+    -area management  pro cons plenty,yes,no 
+    Poor .
+    Non productive ,site supervisor home  joined the company
+    Overall rating rating 
+    Question wath are working
+
+    -cvs employers ,job ,submit 
+    Nogada security area nagada R2000.R5Ooo month compagny base 
+    Securite area vehicle for 3 month car allowance 
+
+
+
+
+    Pay query.
+    Guard name: tshingombe Tshitadi
+    Position in compagny: security officer car guard number...
+    Guard Ccma labour outcome
+    Site name:savewas Witbank,, 
+    Date: outcomes court Ccma  
+    Time:
+     Vs 
+    Service transcript 
+    Vat arbour square cnr Juta street ground street Braamfontein 2001,
+    Tel:O1133912/0794335.
+    Mazanzi@telecom.co.
+    Mzanzibusi ESS.
+    Vat no:4190278988
+    Invoice 1860
+    Date:11/07/2020
+    Customer Vat.
+    To :Tshitadi tshingombe
+    Email: tshingombe kb@gmail.com
+    Unit 11,1, description 1-wee qwasa
+    Tshingombe...
+    Rate:R38,00 ,,amount 418,00
+    Admi :R250,00,,a R,2500
+    Parties: tshingombe t /nogada security
+    Case no :jr 2461/2015
+    Total:R668,00
+    15%vat R100,20
+    Deposit,Total due ,518,20,,
+    Banking detai stand , business count ,branch springs..
+    Bid estimate quotation,01-07-2020/ jr 2461-2015 ../ JA/2019
+    Bid closed:
+
+    -Labour court  court order : digital
+    Tax statement 
+
+
+    --Labour uif coid dol:case number
+    Sars : estate query attorney legal
+    Court order :
+
+    -Cpic : property .court order close cooperation..
+    Translate . termination 
+
+    Beee dti
+
+    -psira pssf Court order enforcement
+    Complaint .
+
+    Seta Teta sasseta : skill development order grantees :
+
+
+
+
+
+
+    On Tue, 30 May 2023, 14:29 TSHINGOMBEKB TSHITADI, <tshingombekb@gmail.com> wrote:
+
+        T.tshingombe .
+        Good day dear I need your assistance above of re completed complain investigation verification process.
+        ________________________________________
+        .
+
+68
+tshingombe fiston
+	
+	2:00 PM (18 minutes ago)
+tshingombe fiston <tshingombefiston@gmail.com> application digital support career license tshingombe fiston <tshingombefiston@gmail.com>Mon, Jul 1, 2024 at 2:14
+Mail Delivery Subsystem
+	
+2:01 PM (18 minutes ago)
+	
+to me
+Error Icon
+Address not found
+Your message wasn't delivered to labourcourt@justicr.gov.za because the domain justicr.gov.za couldn't be found. Check for typos or unnecessary spaces and try again.
+LEARN MORE
+The response was:
+
+DNS Error: DNS type 'mx' lookup of justicr.gov.za responded with code NXDOMAIN Domain name not found: justicr.gov.za For more information, go to https://support.google.com/mail/?p=BadRcptDomain
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: "President Hotline(DPME)" <president@presidency.gov.za>, SARS Human Capital and Development <System@successfactors.com>, LMIS <do-not-reply@serviceseta.org.za>, deregistrations@cipc.co.za, Central Supplier Database System <csd.info@csd.gov.za>, labourcourt@justicr.gov.za, bmbengo@parliament.gov.za, OCFOHelpdesk <OCFOHelpdesk@thedtic.gov.za>, labourcourttax@judiciary.org.za, play-certificate-support@google.com, Kelebogile.Marago@treasury.gov.za, Buhle Shiba <buhle@sheriffs.org.za>, pcc@sars.gov.za, johannesburg@ccma.org.za, DSI-Notification <RNDTAXINCENTIVE@dst.gov.za>, Psychometric Services Unit <psychometrics@sars.gov.za>, lntsabo@parliament.gov.za
+Cc: 
+Bcc: 
+Date: Tue, 2 Jul 2024 14:00:50 +0300
+Subject: Re: Complaint pension fund
+----- Message truncated -----
+Mail Delivery Subsystem
+	
+2:01 PM (18 minutes ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to csd.info@csd.gov.za has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. [AM2PEPF0001C712.eurprd05.prod.outlook.com 2024-07-02T11:01:12.377Z 08DC9904264BCB04]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: "President Hotline(DPME)" <president@presidency.gov.za>, SARS Human Capital and Development <System@successfactors.com>, LMIS <do-not-reply@serviceseta.org.za>, deregistrations@cipc.co.za, Central Supplier Database System <csd.info@csd.gov.za>, labourcourt@justicr.gov.za, bmbengo@parliament.gov.za, OCFOHelpdesk <OCFOHelpdesk@thedtic.gov.za>, labourcourttax@judiciary.org.za, play-certificate-support@google.com, Kelebogile.Marago@treasury.gov.za, Buhle Shiba <buhle@sheriffs.org.za>, pcc@sars.gov.za, johannesburg@ccma.org.za, DSI-Notification <RNDTAXINCENTIVE@dst.gov.za>, Psychometric Services Unit <psychometrics@sars.gov.za>, lntsabo@parliament.gov.za
+    
 
