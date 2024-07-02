@@ -3403,4 +3403,1034 @@ The response from the remote server was:
 From: tshingombe fiston <tshingombefiston@gmail.com>
 To: "President Hotline(DPME)" <president@presidency.gov.za>, SARS Human Capital and Development <System@successfactors.com>, LMIS <do-not-reply@serviceseta.org.za>, deregistrations@cipc.co.za, Central Supplier Database System <csd.info@csd.gov.za>, labourcourt@justicr.gov.za, bmbengo@parliament.gov.za, OCFOHelpdesk <OCFOHelpdesk@thedtic.gov.za>, labourcourttax@judiciary.org.za, play-certificate-support@google.com, Kelebogile.Marago@treasury.gov.za, Buhle Shiba <buhle@sheriffs.org.za>, pcc@sars.gov.za, johannesburg@ccma.org.za, DSI-Notification <RNDTAXINCENTIVE@dst.gov.za>, Psychometric Services Unit <psychometrics@sars.gov.za>, lntsabo@parliament.gov.za
     
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 11, 2023, 11:54 AM
+	
+to TSHINGOMBEKB
+Skip to content
+NBCPSS
+Protecting those who protect us.
+NBCPSS
 
+    Home
+    About
+    Services
+    Forms/Agreements
+    Contact
+    Advertisements
+    Health Insurance
+
+Job Application Form
+Employment Application Form
+Employment Application Form
+Application Details
+Position applied for
+Notice Period
+Location:(Please specify,if multiple positions are advertised)
+Personal Details
+
+Personal Details
+Title
+First Name
+Middle Name
+Last Name
+ID Nr
+Date of Birth
+Race
+Disability
+Are you RSA citizen
+Have you been convicted or found guilty of a criminal offence(Includingan admission of guilt)?
+Do you have any pending criminal case against you?
+Physical Address
+Address Line 1
+Address Line 2
+City
+Province
+Postal Code
+Country
+Email
+Phone/Mobile
+Alternative Phone/Mobile
+Education
+
+Limit to 3 highest qualifications
+Highest Qualification Name
+Date
+Institution
+Status (Completed/Not Yet Completed)
+Second Highest Qualification Name
+Date
+Institution
+Status (Completed/Not Yet Completed)
+Third Highest Qualification Name
+Date
+Institution
+Status (Completed/Not Yet Completed)
+Work Experience
+
+Limit to 5 recent jobs
+Current Employer
+Position
+Date: From –To (MM-YY)
+2nd Most Recent Employer
+Position
+Date: From –To (MM-YY)
+Reason for leaving
+3rd Most Recent Employer
+Position
+Date: From –To (MM-YY)
+Reason for leaving
+4th Most Recent Employer
+Position
+Date: From –To (MM-YY)
+Reason for leaving
+5th Most Recent Employer
+Position
+Date: From –To (MM-YY)
+Reason for leaving
+References
+First Name
+Last Name
+Relationship to you
+Email
+Organisation
+Phone/Mobile
+First Name
+Last Name
+Relationship to you
+Email
+Organisation
+Phone/Mobile
+First Name
+Last Name
+Relationship to you
+Email
+Organisation
+Phone/Mobile
+CV Upload
+Choose File
+Rapploie.docx
+100% Completed
+27.3KB
+×
+Declaration
+
+By submitting this application you declare that, all the information provided on this form is true and correct. You understand that withholding material information or failing to answer the questions correctly, will constitute a breach of a condition of employment (if you are successful in this application) and will result in this application being disqualified or disciplinary action taken against you if you are appointed.
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsJun 11, 2023, 12:24 PM
+	
+to contactus, pcc, sarsdebtmanagement2, TSHINGOMBEKB
+HELLO DEAR
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 11, 2023, 12:35 PM
+	
+to TSHINGOMBEKB
+
+SARS Email Query Case: 462451065
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+noreply@sars.gov.za
+	
+
+11:26 AM (2 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Tax Practitioner,
+
+The South African Revenue Service (SARS) confirms receipt of your query: Re: Complaint pension fund
+
+Your query has been successfully received and assigned Case No: 462451065
+
+Correspondence on the progress of this case will be issued in due course.
+
+Sincerely ,
+
+THE SOUTH AFRICAN REVENUE SERVICE
+
+Legal disclaimer: This email is intended solely for the use of the individual or entity to who it is addressed. If you have received this email in error, please delete the email from your system. If you are not the intended recipient you are notified that disclosing, copying, distributing or taking any action in reliance on the contents of this information is strictly prohibited.
+
+SARS Email Query Case: 462451064
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+noreply@sars.gov.za
+	
+
+11:26 AM (5 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Taxpayer,
+
+The South African Revenue Service (SARS) confirms receipt of your query: Re: Complaint pension fund
+
+Your query has been successfully received and assigned Case No: 462451064
+
+Correspondence on the progress of this case will be issued in due course.
+
+Sincerely ,
+
+THE SOUTH AFRICAN REVENUE SERVICE
+
+Legal disclaimer: This email is intended solely for the use of the individual or entity to who it is addressed. If you have received this email in error, please delete the email from your system. If you are not the intended recipient you are notified that disclosing, copying, distributing or taking any action in reliance on the contents of this information is strictly prohibited.
+
+Automatic reply: Complaint pension fund
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AOLgnvuqXvvCmS_oSZCy_y_6jHK-ZoDwrW4yrP2moq50sdAzKnhYRAbIR-iZ7SeMmphv=s40-p
+
+Contact Us
+	
+
+11:25 AM (8 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Taxpayer
+
+ 
+
+Thank you for your correspondence.
+
+ 
+
+Kindly be advised that supporting documents submitted to this eMail account will no longer be linked to your unresolved case number.
+
+ 
+
+Taxpayers are reminded to submit supporting documents using SARS eFiling or via the corporate website On Line Service at SARS Online Query System
+
+ 
+
+For assistance on how to use this service, kindly navigate to our guide at GEN-GEN-51-G01 – SARS Online Query System – External Guide  or watch our video on How to Submit Supporting Documents to SARS Online - YouTube
+
+ 
+
+As this is an auto response eMail, please do not reply and thank you for your co-operation.
+
+ 
+
+Sincerely,
+
+ 
+
+#Your Tax Matters!
+
+ 
+
+South African Revenue Service (SARS)
+
+ 
+
+Disclaimer
+
+Please Note: This email and its contents are subject to our email legal notice which can be viewed at https://www.sars.gov.za/terms-and-conditions/email-disclaimer/
+
+Attachments area
+
+Preview YouTube video How to Submit Supporting Documents to SARS Online
+
+https://i.ytimg.com/vi/0JpKwFw0wVU/mqdefault.jpg
+
+https://ssl.gstatic.com/docs/doclist/images/mediatype/icon_2_youtube_x16.png
+
+ 
+
+ 
+
+https://lh3.googleusercontent.com/cm/AOLgnvvk5MX5oCsEUsXmieUkBWHqgPZWPn4E8NdkKFLB4dwEgKTO_jfmethmBhk9SCHa=s40-p
+
+PCC
+	
+
+11:26 AM (7 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Taxpayer
+
+ 
+
+Thank you for your correspondence.
+
+ 
+
+Kindly be advised that supporting documents submitted to this eMail account will no longer be linked to your unresolved case number.
+
+ 
+
+Tax Practitioners are reminded to submit supporting documents using SARS eFiling or via the corporate website On Line Service at SARS Online Query System
+
+ 
+
+For assistance on how to use this service, kindly navigate to our guide at GEN-GEN-51-G01 – SARS Online Query System – External Guide  or watch our video on How to Submit Supporting Documents to SARS Online - YouTube
+
+ 
+
+As this is an auto response eMail, please do not reply and thank you for your co-operation.
+
+ 
+
+Sincerely,
+
+ 
+
+#Your Tax Matters!
+
+ 
+
+South African Revenue Service (SARS)
+
+ 
+Attachments area
+Preview YouTube video How to Submit Supporting Documents to SARS Online
+tshingombe fiston
+	
+	AttachmentsJun 11, 2023, 12:40 PM
+On Sun, Jun 4, 2023 at 2:02 PM TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com> wrote: Complaint On Sun, 04 Jun 2023, 08:16 TSHINGOMBEKB TSHITADI, <tshingombekb@g
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsJun 11, 2023, 12:57 PM
+	
+to complaints, deregistrations, moiamendments, education, corporatelegalservices, companydocs, TSHINGOMBEKB
+ 2 Attachments  •  Scanned by Gmail
+Mail Delivery Subsystem
+	
+	Jun 11, 2023, 12:57 PM
+Address not found Your message wasn't delivered to complaints@cipc.co.za because the address couldn't be found, or is unable to receive mail. LEARN MORE This li
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsJun 14, 2023, 1:35 PM
+	
+to TSHINGOMBEKB
+
+Automatic reply: Complaint pension fund
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AOLgnvuqXvvCmS_oSZCy_y_6jHK-ZoDwrW4yrP2moq50sdAzKnhYRAbIR-iZ7SeMmphv=s40-p
+
+Contact Us
+	
+
+Sun, Jun 11, 11:25 AM (3 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Taxpayer
+
+ 
+
+Thank you for your correspondence.
+
+ 
+
+Kindly be advised that supporting documents submitted to this eMail account will no longer be linked to your unresolved case number.
+
+ 
+
+Taxpayers are reminded to submit supporting documents using SARS eFiling or via the corporate website On Line Service at SARS Online Query System
+
+ 
+
+For assistance on how to use this service, kindly navigate to our guide at GEN-GEN-51-G01 – SARS Online Query System – External Guide  or watch our video on How to Submit Supporting Documents to SARS Online - YouTube
+
+ 
+
+As this is an auto response eMail, please do not reply and thank you for your co-operation.
+
+ 
+
+Sincerely,
+
+ 
+
+#Your Tax Matters!
+
+ 
+
+South African Revenue Service (SARS)
+
+ 
+
+Disclaimer
+
+Please Note: This email and its contents are subject to our email legal notice which can be viewed at https://www.sars.gov.za/terms-and-conditions/email-disclaimer/
+
+Attachments area
+
+Preview YouTube video How to Submit Supporting Documents to SARS Online
+
+https://i.ytimg.com/vi/0JpKwFw0wVU/mqdefault.jpg
+
+https://ssl.gstatic.com/docs/doclist/images/mediatype/icon_2_youtube_x16.png
+
+ 
+
+ 
+
+https://lh3.googleusercontent.com/cm/AOLgnvvk5MX5oCsEUsXmieUkBWHqgPZWPn4E8NdkKFLB4dwEgKTO_jfmethmBhk9SCHa=s40-p
+
+PCC
+	
+
+Sun, Jun 11, 11:26 AM (3 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Taxpayer
+
+Thank you for your correspondence.
+
+Kindly be advised that supporting documents submitted to this eMail account will no longer be linked to your unresolved case number.
+
+Tax Practitioners are reminded to submit supporting documents using SARS eFiling or via the corporate website On Line Service at SARS Online Query System
+
+ For assistance on how to use this service, kindly navigate to our guide at GEN-GEN-51-G01 – SARS Online Query System – External Guide  or watch our video on How to Submit Supporting Documents to SARS Online - YouTube
+
+ 
+
+As this is an auto response eMail, please do not reply and thank you for your co-operation.
+
+ 
+
+Sincerely,
+
+ 
+
+#Your Tax Matters!
+
+ 
+
+South African Revenue Service (SARS)
+
+https://lh3.googleusercontent.com/a-/AD_cMMRFrhTS8h0VH77bHKcHX54ynGwfLWo1ZsG6k9Ue=s40-p
+
+Media
+	
+
+Sun, Jun 11, 11:41 AM (3 days ago)
+
+
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Thank you for your media query, we acknowledge receipt.
+Please note that the turnaround time for a response is 24 to 48 hours but can be less for some queries. Queries received over weekends and after hours may have longer turnaround times.
+
+Regards,
+Media unit
+National Treasury
+
+
+
+National Treasury EMail Disclaimer
+
+https://lh3.googleusercontent.com/cm/AOLgnvvmbmWKm4fyI8nSUcK_dWu2QKNdfji-zR9urQiGTV_C8FvUHgn5zuc6L2VlT6Ps=s40-p
+
+moiamendments via dkim.mimecast.org 
+	
+
+Jun 11, 2023, 12:13 PM (3 days ago)
+
+
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Customer
+
+
+We acknowledge receipt of your lodgment and will tend to it as soon as possible.
+
+
+Please note that no queries directed to this mailbox will be addressed. Queries must be directed i.t.o the published service delivery standards.
+
+Kind Regards
+CIPC
+
+ 
+
+Disclaimer
+
+This message and its attachments is intended for the exclusive use of the named recipients hereof and may contain information that is privileged or confidential or otherwise restricted from disclosure wider than the named recipients. If you are not the named recipient, you are not authorized to read, use, transmit, print, retain, copy or disseminate this message or any part thereof, or the attachments thereto. If you have received this message in error, please notify the sender immediately via e-mail and discard (de-identify) any paper copies and delete all electronic files of the message.
+
+This email has been scanned for viruses and malware, and may have been automatically archived by Mimecast, a leader in email security and cyber resilience. Mimecast integrates email defenses with brand protection, security awareness training, web security, compliance and other essential capabilities. Mimecast helps protect large and small organizations from malicious activity, human error and technology failure; and to lead the movement toward building a more resilient world. To find out more, visit our website.
+
+https://lh3.googleusercontent.com/cm/AOLgnvufd1eZjHTdw-EsjRWtrYYM3vFmTS5yoXXLrKVgTdF_vOxLbYpxYDV8zN70l5cZ=s40-p
+
+deregistrations via dkim.mimecast.org 
+	
+
+Jun 11, 2023, 12:18 PM (3 days ago)
+
+
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+THIS IS NOT AN ENQUIRY MAILBOX
+
+ALL ENQUIRIES MUST BE LOGGED VIA THE CIPC WEBSITE - WWW.CIPC.CO.ZA / ENQUIRIES
+
+ 
+
+Dear Customer,
+
+ 
+
+Thank you for submitting your application which will be attended to shortly.
+
+ 
+
+In order for your application to be processed successfully kindly ensure that you comply with the (1) processing and (2) documentary requirements.
+
+ 
+
+Processing requirements:
+
+Kindly ensure that you submit your application as a single e-mail with all attachments in PDF or TIFF. We do not except any other formats and these not acceptable formats include zipped files, other e-mails as attachments, JPEG, Word or Excel.
+
+ 
+
+For the full notice containing the CIPC Scan To E-mail requirements, kindly refer to www.cipc.co.za / view customer notices / CIPC Scan to E-mail Requirements.
+
+ 
+
+Documentary requirements for deregistrations:
+
+The documentary requirements are available on the CIPC website as follows:
+
+ 
+
+·         If a company  - www.cipc.co.za / maintain your business / maintain your company  / select the enterprise type / changing the status of your company / deregistering your company.
+
+ 
+
+·         If a close corporation - www.cipc.co.za / maintain your business / maintain your close corporation / changing the status of your close corporation / deregistering your close corporation.
+
+ 
+
+Service Delivery Standard:
+
+The service standard for placing the company or close corporation into deregistration is 10 working days from date of tracking PROVIDED that the application meets the (1) processing and (2) documentary requirements.
+
+ 
+
+The service standard to complete the entire deregistration process and to finally deregister it is 4 months PROVIDED that no objection was received to the deregistration.
+
+ 
+
+You may follow up or trace the progress of the deregistration, by downloading a free disclosure from the CIPC website.
+
+ 
+
+Enquiries:
+
+Kindly log a ticket for an enquiry via the CIPC website – www.cipc.co.za / enquiries
+
+ 
+
+Applications other than deregistrations:
+
+This mailbox is solely reserved for the receipt of deregistration applications.  Other applications must kindly be sent to the correct filing mailboxes as per the notice on the CIPC website. 
+
+ 
+
+Kind regards,
+
+Deregistration Team
+
+V2.2
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+SARS Email Query Case: 462508789
+
+SARS Email Query Case: 462451065
+
+Inbox
+ 
+
+ 
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+noreply@sars.gov.za
+	
+
+Mon, Jun 12, 12:05 PM (2 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Tax Practitioner,
+
+The South African Revenue Service (SARS) confirms receipt of your query: Re: Automatic reply:
+
+Your query has been successfully received and assigned Case No: 462508789
+
+Correspondence on the progress of this case will be issued in due course.
+
+Sincerely ,
+
+THE SOUTH AFRICAN REVENUE SERVICE
+
+Legal disclaimer: This email is intended solely for the use of the individual or entity to who it is addressed. If you have received this email in error, please delete the email from your system. If you are not the intended recipient you are notified that disclosing, copying, distributing or taking any action in reliance on the contents of this information is strictly prohibited.
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsJun 18, 2023, 3:01 PM
+	
+to TSHINGOMBEKB
+Law Enforcement and Legal Division
+
+ENFORCEMENT AND COMPLIANCE SERVICES
+
+In terms of the Private Security Industry Regulation Act, 2001 the Authority must determine and enforce minimum standards of occupational conduct in respect of security service providers. In this regard, the Authority has a dual responsibility of determining minimum standards of occupational conduct in respect of security service providers as well as enforcing such standards.
+The primary objective of law enforcement is to ensure that compliance with existing legislation by security service providers is being promoted and controlled through a process of active monitoring and investigation of the affairs security service providers.
+ 
+Key functions of Law Enforcement:
+
+    Inspections of individual Security Officers and Security Business Providers,
+    Investigation of Individual Security Officers and Security Business Providers,
+    Conduct Code of Conduct prosecution,
+    Assist SAPS in the regulation of Fire Arms,
+    Investigation of illegal practices within the private security industry
+    Enforcement of applicable laws to ensure that all security service providers act in the public and national interest in rendering of security services.
+
+  24 June 2021 - Clarification on Self Assessment. Read More and Business Self-Assessment Inspection Report. Read More
+
+  26 February 2021 - Compliance Self-Assessment Tool. Read More and Guidelines. Read More
+
+LEGAL SERVICES
+
+Legal Services unit provides prosecutorial services for improper code of conduct dockets. The unit certifies dockets and ensures successful prosecution through processes geared for effective regulation. This includes the determination of the contravention and ultimately the finalization of the case. Legal services ensures that there is efficiency in the prosecution of all contraventions of the PSIR Act and has put in place measures to ensure that the process of prosecution is concluded within 90 days.
+
+Available Forms
+
+Lodge an appeal form
+
+ 
+ One attachment  •  Scanned by Gmail
+tshingombe fiston
+	
+	AttachmentsJun 18, 2023, 3:07 PM
+On Sun, Jun 18, 2023 at 2:01 PM tshingombe fiston <tshingombefiston@gmail.com> wrote: Law Enforcement and Legal Division ENFORCEMENT AND COMPLIANCE SERVICES In
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 18, 2023, 3:22 PM
+	
+to GP.ServiceComplaints, MP.ServiceComplaints, TSHINGOMBEKB
+he SAPS Service Complaints Centre, which forms part of the Component: Inspectorate Analysis Centre and Service Complaints at the Division Inspectorate, is in place to help the community to receive optimal service delivery and reduce complaints against the police. 
+
+The aim of the process is to redress and investigate a dissatisfaction or disappointment experienced by any person or an organisation, locally, regionally, continentally, or internationally, in relation to an action or inaction regarding the service that was rendered or supposed to be rendered by the SAPS represented by its employee(s). 
+
+Besides for complaints to be dealt with on an individual basis, an aggregation of all complaints is also done with a view to identify trends through analysis, of which the findings are then utilised to inform management to effect corrective action. 
+
+Complaints can vary from poor service delivery regarding communication, response, investigations, police negligence, police misconduct and complaints against the SAPS Management or members and general complaints. 
+
+For easy referral when reporting a complaint, the “Minimum complaint information” required includes, but is not limited to –
+
+Full names and surname of the complainant; Identity number, residential/business address, telephone and cell phone numbers and email address. 
+
+Also provide a description of the complaint including the province in which the complaint originated, the name of the police station, the case number (if applicable), details of the SAPS employees involved, etc. 
+
+Complainants may submit a complaint directly by visiting your local police station community service centre (CSC), Station Commander, District / Cluster Commander’s office or Provincial Complaints Coordinators: Inspectorate.
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 18, 2023, 3:30 PM
+	
+to csd, TSHINGOMBEKB
+c
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 18, 2023, 3:32 PM
+	
+to TSHINGOMBEKB
+his is to confirm that an incident was logged On: 2023/06/18 2:30:59 PM (UTC 02:00) - Africa/Johannesburg
+Inbox
+csd@treasury.gov.za
+	
+2:31 PM (0 minutes ago)
+
+	
+to me
+Dear tshingombefiston tshingombefiston,
+
+Thank you for contacting National Treasury OCPO Contact Centre.
+
+This email serves to confirm receipt of the query/issue you raised regarding your CSD.
+
+The following new Incident has been logged for you:
+
+Incident #
+	
+
+1514128
+
+Summary:
+	
+
+Re: Complaint pension fund
+
+Customer Name:
+	
+
+tshingombefiston tshingombefiston
+
+Location:
+	
+
+Priority:
+	
+
+3
+
+Status:
+	
+
+Logged
+
+Category:
+	
+
+Description
+
+Important: This email originated from an external sender. Please do not click on email links or open attachments you did not expect. When in doubt, please contact the ICT Service Desk.
+
+c
+
+On Sun, Jun 4, 2023 at 2:02 PM TSHINGOMBEKB TSHITADI > wrote:
+Complaint
+
+National Treasury EMail Disclaimer
+
+
+For inquiries refer to case Incident # 1514128 as your reference number
+
+This is a system generated e-mail and is for confirmation purpose only.
+
+Our service is also available Telephonically on +27(0)12 406 9222 and operates Monday to Friday, excluding public holidays from 08:00am to 16:00pm
+
+Regards
+
+CSD Contact Centre
++27(0)12 406 9222
+csd@treasury.gov.za
+https://secure.csd.gov.za/
+	
+TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com>
+	
+Jun 23, 2023, 3:30 PM
+	
+to MMA, tshingombe, TSHINGOMBEKB, me
+Id:tircog0910610
+Cell phone:0725298946
+
+
+On Fri, 23 Jun 2023, 14:26 TSHINGOMBEKB TSHITADI, <tshingombekb@gmail.com> wrote:
+
+    Hello dear thanks u for your response.
+    - name : tshingombe Tshitadi
+    I'd:tircog000910610
+    Extra savings card number:971008508420751
+
+
+    On Tue, 20 Jun 2023, 19:08 MMA Support, <help@moneymarketaccount.co.za> wrote:
+
+        Goo dday TSHINGOMBEKB TSHITADI,
+
+        Thank you for your email.
+        ​
+        Kindly provide us with your ID number and phone number for further assitance 
+        ​
+        ​
+        ​
+        Kind regards 
+
+
+
+
+            On Tue, 20 Jun at 4:42 PM , TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com> wrote:
+            Hi
+            On Tue, 30 May 2023, 14:29 TSHINGOMBEKB TSHITADI, <tshingombekb@gmail.com> wrote:
+
+                T.tshingombe .
+                Good day dear I need your assistance above of re completed complain investigation verification process.
+                ________________________________________
+                .
+
+
+            Disclaimer:
+            https://www.shopriteholdings.co.za/email-disclaimer.html 
+
+        1569264:961486
+
+TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com>
+	
+AttachmentsJun 23, 2023, 3:54 PM
+	
+to Mmakhatse, tshingombetshitadi, tshitaditshingombe, TSHINGOMBEKB, tshingombe, me
+Hello dear thank u for your response 
+I m 
+Application  complaint
+________________________________________
+Name : tshingombe Tshitadi Fiston
+Id:tircog000910610
+Persal number: 000910610
+Province: pumalanga
+City : Witbank
+Police station: klifotein
+Site police station commenter belvedour partnership nogada sa parking service.
+Community police forum deljudor:
+Natasha courts.
+ SCM affidavit certificate copy parking : savewas mall service 
+Saps  car guard : customer trolley assistance 
+Company name:nogada security sa saps service 
+Position:car guard security officer 
+Applicant and responding matter 
+SoC affidavit and investigation
+Principal:
+Case number: gajb 6808/ .jr 2461/15,
+                       ...ja37/19
+Persal number case police procedure Ccma labour enforcement low 
+Prevention low safety and low 
+Notice motion , judgement book.report clearly transcript evidence low relate police station affidavit registration  entry 
+Post  evidence low docket system court 
+Security safety policy docket information relate statement give to court and warenty  humain 
+Policy  procedural eljma reference 6808/notice motion  ccmabhumaine resource  management investigation 
+Skill development.security tenure extension land development popi docket system 
+
+Policy procedure labour court  
+                       
+Reason: leaving appeal court labour and Ccma dismissal award ruling and rescission ruling Ccma no granted review , certificate outcom Ccma non resolve, 
+Requested EGAEK:0222000841/0220080846/
+Apeal process review labour court 
+Certificate record transcript dismissal .
+Notice motion order court dismissed petition and judgement appeal for reason  union trade 2019-to2015
+Reason provide fund pansion  case .
+That the reason recall application police union trade to council the matter and consolidated statement of case in the system record transcripts labour Ccma docket number investigation on book.judgement book Manuel system.
+
+
+
+On Wed, 21 Jun 2023, 10:11 Mmakhatse Mahlape, <assistantpa.hq@sapu.co.za> wrote:
+
+    Good day Tshingombe,
+
+    Thank you for your enquiry with SAPU.
+
+    Kindly provide us with the following details:  Which province you are from, what is your Persal number and what is your ID Number?
+
+     
+
+    Tshepo Matsane
+
+    Deputy General Secretary
+
+    National Office|87 Rauch Avenue
+
+    Georgeville, Pretoria
+
+    Tel: 012 804 2088
+
+    Fax: 086 480 5619
+
+    E-mail : pa.hq@sapu.co.za cc dgs@sapu.co.za
+
+     
+
+    cid:image002.png@01D83225.C4C4F310cid:image003.png@01D83225.C4C4F310 cid:image004.png@01D83225.C4C4F310images
+
+    cid:image001.png@01D4D369.5B3E66B0
+
+     
+
+    From: TSHINGOMBEKB TSHITADI [mailto:tshingombekb@gmail.com]
+    Sent: Tuesday, 20 June 2023 16:42
+    To: enquiries@pfa.org.za; Steve Mphela <Steve.Mphela@pfa.org.za>; NBCPSS - General Queries <info@nbcpsshealth.co.za>; NBCPSS Registrations <registrations@nbcpss.org.za>; info@ccma.co.za; labourcourt@digitalaudio.co.za; Riyaana Pandy <RPandy@judiciary.org.za>; TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com>; tshitaditshingombe@yahoo.fr; PSiRA <digitalsupport@psira.co.za>; sassetacommunications@sasseta.org.za; SASSETA <ibowden@sasseta.org.za>; psira@behonest.co.za; complain@psira.co.za; careerhelp@dhet.gov.za; Sci-Bono Discovery Centre <cynthia.mohohlo@sci-bono.co.za>; QCTO Certification <certification@qcto.org.za>; National Office <nationaloffice@sapu.org.za>; Lerato Natasha Mhlanga <LeratoMh@ccma.org.za>; MMA Support <help@moneymarketaccount.co.za>; Lebogang Magano <LebogangMag@ccma.org.za>; law@louwrenskoen.co.za
+    Subject: Re: Complaint pension fund
+
+     
+
+    Hi
+
+    On Tue, 30 May 2023, 14:29 TSHINGOMBEKB TSHITADI, <tshingombekb@gmail.com> wrote:
+
+        T.tshingombe .
+
+        Good day dear I need your assistance above of re completed complain investigation verification process.
+
+        ________________________________________
+
+        .
+
+
+
+    Disclaimer
+
+    The information contained in this communication from the sender is confidential. It is intended solely for use by the recipient and others authorized to receive it. If you are not the recipient, you are hereby notified that any disclosure, copying, distribution or taking action in relation of the contents of this information is strictly prohibited and may be unlawful.
+
+ 5 Attachments  •  Scanned by Gmail
+TSHINGOMBEKB TSHITADI
+	
+	Jun 23, 2023, 4:33 PM
+Thanks u for your response
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Jun 24, 2023, 11:36 AM
+	
+to admni, TSHINGOMBEKB
+
+
+Mail Delivery Subsystem
+	
+	Jun 24, 2023, 11:36 AM
+Address not found Your message wasn't delivered to admni@nbcpss.org because the domain nbcpss.org couldn't be found. Check for typos or unnecessary spaces and t
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsJun 25, 2023, 12:05 PM
+	
+to TSHINGOMBEKB, namereservationsandregistrations
+
+
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsAug 26, 2023, 2:26 PM
+	
+to contactus, centraloffice, csd, coopscontact, bee-complaints, companydocs, Lineo.Mohlabi, DGRegistry, deregistrations, TSHINGOMBEKB
+
+
+ 18 Attachments  •  Scanned by Gmail
+Gmail virus scanners are temporarily unavailable
+
+– The attached files haven't been scanned
